@@ -1,1 +1,1 @@
-# skilasophia.username.github.io
+# skilasophia.github.io
